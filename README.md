@@ -8,9 +8,13 @@
 - 🤔 An optimist 
 - 💬 Ask me about anything you like!
 - 📫 One can always find me at : 
-       ###      LinkedIn : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
-       ###      Instagram : https://www.instagram.com/gk_5801/
-       ###      Contact : 9354337180
+             
+             LinkedIn : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
+             
+             Instagram : https://www.instagram.com/gk_5801/
+       
+             Contact : 9354337180
+             
 - ⚡ Life fact: Helping people makes me happy 😉😊!
 - 🧒🏻 My personal Interests : 
              Buisness Management👩🏻‍
