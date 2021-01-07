@@ -10,11 +10,11 @@
 - ⚡ Life fact: Helping people makes me happy 😉😊!
 - 📫 One can always find me at:
  
- LinkedIn  : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
+   LinkedIn  : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
  
- Instagram : https://www.instagram.com/gk_5801/
+   Instagram : https://www.instagram.com/gk_5801/
  
- Contact   : 9354337180
+   Contact   : 9354337180
      
 - 🧒🏻 My personal Interests : 
              Buisness Management👩🏻‍
