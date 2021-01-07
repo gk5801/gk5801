@@ -1,16 +1,22 @@
-### Hi there 👋
+### Hi there !! 😀👋🏻🙋🏻‍
 
-<!--
-**gk5801/gk5801** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔭 I’m currently working on developing my coding skills.
+- 🌱 I’m currently learning flutter.
+- 👍🏻 Languages : Java💯 C✨ JS🎀 HTML🧘🏻‍ CSS🟣 BS🔲
+- 😇 Aspire to become a full stack developer.
+- 👯 I’m looking to collaborate with Google(a tough choice!). 
+- 🤔 An optimist 
+- 💬 Ask me about anything you like!
+- 📫 One can always find me at : 
+             LinkedIn : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
+             Instagram : https://www.instagram.com/gk_5801/
+             Contact : 9354337180
+- ⚡ Life fact: Helping people makes me happy 😉😊!
+- 🧒🏻 My personal Interests : 
+             Buisness Management👩🏻‍
+             Zumba Fitness💃🏻
+             Sports : Cycling🚴 Badminton🏸
+             App Development🎇
 
-Here are some ideas to get you started:
+- 🤹🏻‍Learning Enthusiast😀📚🔖
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
