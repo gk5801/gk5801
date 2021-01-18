@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate with Google(a tough choice!). 
 - 🤔 An optimist 
 - 💬 Ask me about anything you like!             
-- ⚡ Life fact: Helping people makes me happy 😉😊!
+- ⚡ Life fact: Helping people makes me happy😉😊!
 - 📫 One can always find me at:
  
    LinkedIn  : https://www.linkedin.com/in/girisha-kawatra-3231241ab/
