@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on developing my coding skills.
 - 🌱 I’m currently learning flutter.
-- 👍🏻 Languages : Java💯 C✨ JS🎀 HTML🧘🏻‍ CSS🟣 BS🔲 ReactJS
+- 👍🏻 Languages : Java💯 C✨ JS🎀 HTML🧘🏻‍ CSS🟣 BS🔲 ReactJS✨
 - 😇 Aspire to become a full stack developer.
 - 👯 I’m looking to collaborate with Google(a tough choice!). 
 - 🤔 An optimist 
