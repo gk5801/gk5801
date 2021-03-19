@@ -16,7 +16,7 @@
  
    Contact   :  9354337180 
    
-   Email ID  : girisha5081@gmail.com 
+   Email ID  : girisha5081@gmail.com
      
 - Code Signal Acc : https://app.codesignal.com/profile/girisha_k3
 - 🧒🏻 My personal Interests : 
