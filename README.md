@@ -5,7 +5,7 @@
 - 👍🏻 Languages : Java💯 C✨ JavaScript🎀 HTML🧘🏻‍ CSS🟣 BootStrap🔲 ReactJS✨
 - 😇 Aspire to become a full stack developer.
 - 👯 I’m looking to collaborate with Google(a tough choice!). 
-- 🤔 An optimist 
+- 🤔 An optimist 🙂
 - 💬 Ask me about anything you like!             
 - ⚡ Life fact: Helping people makes me happy😉😊!
 - 📫 One can always find me at:
